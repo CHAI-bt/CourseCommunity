@@ -10,7 +10,7 @@
 ### 一代目：赵思淇，钟芳雄，许陌涵，卫家燊，施梓瀚，仇是，江玮陶，孙一杨，黄祉宾，申应君，叶桓岩
 #### Logo created by qFF's()
 
-## [Status]: 期末季加油！！！
+## [Status]: 新学期一切顺利！！！
 
 ## 🌟 Acknowledgements
 
